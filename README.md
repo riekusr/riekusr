@@ -1,4 +1,4 @@
-## Currently (22-Oct) redoing my github
+## Currently (22-Oct) redoing my github, adding more projects to showcase resume. 
 
 ### Hi, I'm Riekus!
 
